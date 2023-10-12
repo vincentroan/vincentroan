@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚙️ I'm currently working on resolving technical issues and developing a comprehensive technical guides.<br>👯 I'm looking to collaborate on innovation of our previous practical project: <br>School-Based Social Distance Prompting and Temperature Acquiring Wristbands with Identification Tagging<br>🌱 I'm currently learning CIP Cybersecurity.<br>🗨️ Ask me about Electronics, Software Technology, and Data Management<br>⚡Fun fact: I love exploring the great outdoors and going on adventurous hikes. Being surrounded by nature helps me recharge and gain a fresh perspective, which ultimately enhances my problem-solving abilities.
+⚙️ I'm currently working on resolving technical issues and developing a comprehensive technical guides.<br>👯 I'm looking to collaborate on innovation for our previous practical project: <br>School-Based Social Distance Prompting and Temperature Acquiring Wristbands with Identification Tagging<br>🌱 I'm currently learning CIP Cybersecurity.<br>🗨️ Ask me about Electronics, Software Technology, and Data Management<br>⚡Fun fact: I love exploring the great outdoors and going on adventurous hikes. Being surrounded by nature helps me recharge and gain a fresh perspective, which ultimately enhances my problem-solving abilities.
 
 
 ## 🌐 Socials:
